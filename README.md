@@ -1,0 +1,2 @@
+# cemal-yusuf
+Para kazma
